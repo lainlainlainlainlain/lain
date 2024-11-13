@@ -3,7 +3,7 @@
 ### hi im lain. i am just a kid wanting to chase his dreams before i croak.
 
 ### socials:
-**[beacons.ai || MORE HERE](beacons.ai/lainlain)** <br>
+**[beacons.ai (!! MORE HERE !!)](beacons.ai/lainlain)** <br>
 **[youtube](youtube.com/@lain-y3v)** <br>
 **[music youtube](youtube.com/@lainchrist)** <br>
 
